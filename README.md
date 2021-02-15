@@ -1,1 +1,0 @@
-# rezult-tu-lapu-kolons
